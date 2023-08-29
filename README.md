@@ -1,0 +1,2 @@
+# latihanlolol
+latihan bangkit
